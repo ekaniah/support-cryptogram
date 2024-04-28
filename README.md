@@ -13,4 +13,4 @@ If you get stuck,
 Don't give up!
 Try solving the 
 Problem with
-a friend.
+a partner.
